@@ -1,4 +1,4 @@
-# 
+# custom opensea sniper bot | volume-analysis + early-mint-access offers the most advanced opensea sniper bot, with volume-analysis and early-mint-access. Ideal for professional NFT
 
 
 
